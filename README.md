@@ -28,7 +28,7 @@ I enjoyed these 7 days, you can as well. To register for next free 7 days bootca
 
 www.shapeai.tech
 
-or follow SHAPEAI on:
+or follow SHAPEAI onon:
 
 <li><a href=
 
